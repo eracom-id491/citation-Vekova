@@ -4,6 +4,6 @@ ligne de code
 
 
 
+<meta http-equiv="refresh" content="5; URL=http://www.https://github.com/eracom-id491/citation-Bginja/blob/master/index.html">
 
-<meta http-equiv="refresh" content="5; URL=http://www.manouvelleadresse.com">
-eracom-id491citation-Bginjacitation-Bginja
+https://github.com/eracom-id491/citation-Bginja/blob/master/index.html
